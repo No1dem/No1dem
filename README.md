@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+![](Slightly higher quality SpongeBob coffee mug gif I made, thought I'd share it. - Imgur.gif)
 <!--
 **No1dem/No1dem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
