@@ -1,4 +1,4 @@
-## 👋
+##⚡⚡ Welcome ⚡⚡
 <p align="left">
   <img src="https://github.com/No1dem/No1dem/blob/main/Slightly%20higher%20quality%20SpongeBob%20coffee%20mug%20gif%20I%20made,%20thought%20I'd%20share%20it.%20-%20Imgur.gif?raw=true" width="350" alt="SpongeBob coffee mug gif">
 </p>
